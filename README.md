@@ -22,5 +22,5 @@ Thats lwk all im boring so i don thave anything to say tbh .
 
 (●'◡'●)
 
-<iframe src="https://assets.pinterest.com/ext/embed.html?id=2392606048281059" height="433" width="345" frameborder="0" scrolling="no" ></iframe>
+<iframe src="https://assets.picture/ext/embed.html?id=2392606048281059"
 
