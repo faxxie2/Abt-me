@@ -21,3 +21,5 @@ Thats lwk all im boring so i don thave anything to say tbh .
 
 
 (●'◡'●)
+
+![My Image](https://example.com/image.png)
