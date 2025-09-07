@@ -25,4 +25,4 @@ Thats lwk all im boring so i don thave anything to say tbh .
 
 
 
-![image alt](https://github.com/faxxie2/Abt-me/blob/main/a806dc75-5730-4e77-8691-cb9064a62d12.jpg?raw=true
+
